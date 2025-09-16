@@ -1,4 +1,4 @@
-# 👨‍�� Gourav Jain
+# 👨‍ Gourav Jain
 
 ## 🚀 Strategic Engineering Leader | Microsoft Azure MVP
 
